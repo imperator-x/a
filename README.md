@@ -1,4 +1,4 @@
 # x y z
-[a+b](https://go.getscreen.ru/invite/190817166)
-[b+c](https://go.getscreen.ru/invite/364667336)
+[a+b](https://go.getscreen.ru/invite/511091450)
+[b+c](https://go.getscreen.ru/invite/569613062)
 
